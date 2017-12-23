@@ -1,6 +1,6 @@
 ##欢迎来到王荣旺的网页
 
-你可以使用[GitHub上的编辑器]（https://github.com/wongrongwang/jwx/edit/master/love.html）
+你可以使用[GitHub上的编辑器]完全不会弄
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
