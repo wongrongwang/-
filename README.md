@@ -18,6 +18,32 @@ Syntax highlighted code block
 - Bulleted
 - List
 
+                                                                Money Matters
+     Parents should help their children understand money.__1___So you may start. talking about money
+when your child shows an interest in buying things , candy or toys , for example.
+      l. The basic function of money
+     Being explaining the basic function of money by showing how people trade money for goods or 
+services. It's important to show your child how money is traded for the thing he wants to have. If he 
+wants to have a toy, give him the money and let him hand the money to the cashier.__2___ When your
+child grows a bit older and understands the basic function  of money , you  can  start  explaining more 
+ complex ways of using money.
+     2. Money lessons
+     Approach money lessons with openness and honesty. ___3___ If you must say no to a child's 
+request to spend money, explain, " You have enough toy trucks for now. " Or, if the request is for many
+different things, say, " You have to make a choice between this toy and that toy. "
+     3.___4____
+     Begin at the grocery store. Pick out similar brands of a product-a name brand butter and a generic
+  (无商标产品 ) , for example. You can show your child how to make choices between
+different brands of a product so that you can save money. ___5___ If he chooses the cheaper brand,
+allow him to make another purchase with the money saved. Later, you may explains how the more 
+expensive choice leaves less money for other purchases.
+A. Wise decision.
+B. The value of money.
+C. Permit the child why he can or cannot have certain things.
+D. Talk yourself what things that cost money are most important to you.
+E. Ask yourself what things that cost money are most important to you.
+F. Talk about how the money bought the thing after you leave the toy store.
+G. The best time to teach a child anything about money is when he shows an interest.
 1. Numbered
 2. List
 
