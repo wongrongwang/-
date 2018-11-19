@@ -59,8 +59,13 @@ As a general rule, all forms of activity lead to boredom when they are performed
 60. A. pets             B. toys        C. friends              D. colleagues
                                                                 
 
- 
-                                                                
+ 第二篇
+                       Social networks are a big part of nearly every teenager's life in this day and age.Many teens have QQ,WeChat,or Weibo but little do a lot of teens know that they can be held responsible for everything they post for the rest of their lives.Everything you post online is part of a digital footprint that can always be traced (追踪)back to you.That includes every post,even every like,comment, favorite and forward that you have ever committed.All pictures you've posted or will post have been stored in a digital database,and it is the companies' right to keep all of these documents that you believe to have been deleted or hidden.
+
+If you think you are safe from Servite finding out about one funny comment you made six months ago on a meaningless picture,you are probably wrong.Recently,a senior,Aaron,at Servite learned this lesson the hard way this year.He wrote a series of ugly comments towards Connelly girls on a web page,ignoring potential consequences.
+This student,however,did have to face consequences from Servite as he was removed from all of his leadership roles in the school.Surprisingly enough,he fully agreed with the  punishment handed down by the administration and fully understood why he was given such severe punishment.
+So,next time you're about to post something you think could be received as offensive or inappropriate,think twice,think again.
+                                        
 2. List
 
 **Bold** and _Italic_ and `Code` text
