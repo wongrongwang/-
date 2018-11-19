@@ -17,33 +17,48 @@ Syntax highlighted code block
 
 - Bulleted
 - List
+As a general rule, all forms of activity lead to boredom when they are performed on a routine(常规)basis. As a matter of fact, we can see this   principle   at work in people of all  ages  . For example, on Christmas morning, children are excited about  playing   with their new toys. But their  interest   soon wears off and by January those   same   toys can be found put away in the basement. The world is full of  well-organized  stamp albums and unfinished models, each standing as a monument to someone’s  broad  interest. When parents bring home a pet, their child  gladly  bathes it and brushes its fur. Within a short time, however, the  burden   of caring for the animal is handed over to the parents. Adolescents enter high school with great   excitement   but are soon looking forward to   graduation   . The same is true of the young adults going to college. And then, how many  adults  , who  now complain (抱怨) about the long drives to work,  eagerly  drove for hours at a time when they first   obtained   their driver’s license (执照)? Before people retire, they usually  plan  to do a lot of  great   things, which they never had  time   to do while working. But  soon   after retirement , the golfing, the fishing, the reading and all of the other pastimes become as boring as the jobs they  left   . And , like the child in January, they go searching for new  toys    .
+41. A. principle      B. habit          C. weaker        D. power
 
-                                                                Money Matters
-     Parents should help their children understand money.The best time to teach a child anything about money is when he shows an interest.
-     So you may start. talking about money when your child shows an interest in buying things , candy or toys , for example.
-      第一段
-      The basic function of money
-      
-     Being explaining the basic function of money by showing how people trade money for goods or 
-services. It's important to show your child how money is traded for the thing he wants to have. If he 
-wants to have a toy, give him the money and let him hand the money to the cashier.Talk about how the money bought the thing after you leave the toy store.
- When your child grows a bit older and understands the basic function  of money , you  can  start  explaining more 
- complex ways of using money.
- 
-     第二段
-     Money lessons
-     
-     Approach money lessons with openness and honesty.  Talk yourself what things that cost money are most important to you.
-      If you must say no to a child's  request to spend money, explain, " You have enough toy trucks for now. " Or, if the request is for many
-different things, say, " You have to make a choice between this toy and that toy. "
+42. A. parties       B. races          C. countries      D. ages
 
-     第三段
-     Wise decision.
-     Begin at the grocery store. Pick out similar brands of a product-a name brand butter and a generic
-  (无商标产品 ) , for example. You can show your child how to make choices between
-different brands of a product so that you can save money. Permit the child why he can or cannot have certain things.
- If he chooses the cheaper brand, allow him to make another purchase with the money saved. Later, you may explains how the more 
-expensive choice leaves less money for other purchases.
+43. A. working      B. living          C. playing       D. going
+
+44. A. confidence       B. interest         C. anxiety          D. sorrow
+
+45. A. same         B. extra            C. funny      D. expensive
+
+46. A. well-organized B. colorfully-printed C. newly- collected    D. half-filled
+
+47. A. broad          B. passing        C. different          D. main
+
+48. A. silently      B. impatiently       C. gladly    D. worriedly
+
+49. A. promise  B. burden            C. right             D. game
+
+50. A. courage         B. calmness        C. confusion         D. excitement
+
+51. A. graduation      B. independence      C. responsibility     D. success
+
+52. A. children         B. students         C. adults     D. retirees
+
+53. A. carefully      B. eagerly       C. nervously          D. bravely
+
+54. A. required         B. obtained    C. noticed          D. discovered
+
+55. A. need             B. learn            C. start                D. plan
+
+56. A. great            B. strong           C. difficult            D. correct
+
+57. A. time            B. money         C. skills               D. knowledge
+
+58. A. only        B. well             C. even             D. soon.
+
+59. A. lost        B. chose             C. left         D. quit
+
+60. A. pets             B. toys        C. friends              D. colleagues
+                                                                
+
  
                                                                 
 2. List
