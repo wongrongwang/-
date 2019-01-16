@@ -17,7 +17,7 @@ Syntax highlighted code block
 
 - Bulleted
 - List
-As a general rule, all forms of activity lead to boredom when they are performed on a routine(常规)basis. As a matter of fact, we can see this   principle   at work in people of all  ages  . For example, on Christmas morning, children are excited about  playing   with their new toys. But their  interest   soon wears off and by January those   same   toys can be found put away in the basement. The world is full of  well-organized  stamp albums and unfinished models, each standing as a monument to someone’s  broad  interest. When parents bring home a pet, their child  gladly  bathes it and brushes its fur. Within a short time, however, the  burden   of caring for the animal is handed over to the parents. Adolescents enter high school with great   excitement   but are soon looking forward to   graduation   . The same is true of the young adults going to college. And then, how many  adults  , who  now complain (抱怨) about the long drives to work,  eagerly  drove for hours at a time when they first   obtained   their driver’s license (执照)? Before people retire, they usually  plan  to do a lot of  great   things, which they never had  time   to do while working. But  soon   after retirement , the golfing, the fishing, the reading and all of the other pastimes become as boring as the jobs they  left   . And , like the child in January, they go searching for new  toys    .
+As a general rule, all forms of activity lead to boredom when they are performed on a routine(常规)basis. As a matter of fact, we can see this   principle   at work in people of all  ages  . For example, on Christmas morning, children are excited about  playing   with their new toys. But their  interest   soAs a general rule, all forms of activity lead to boredom when they are performed on a routine(常规)basis. As a matter of fact, we can see this   principle   at work in people of all  ages  . For example, on Christmas morning, children are excited about  playing   with their new toys. But their  interest   soon wears off and by January those   same   toys can be found put away in the basement. The world is full of  well-organized  stamp albums and unfinished models, each standing as a monument to someone’s  broad  interest. Whenon wears off and by January those   same   toys can be found put away in the basement. The world is full of  well-organized  stamp albums and unfinished models, each standing as a monument to someone’s  broad  interest. When parents bring home a pet, their child  gladly  bathes it and brushes its fur. Within a short time, however, the  burden   of caring for the animal is handed over to the parents. Adolescents enter high school with great   excitement   but are soon looking forward to   graduation   . The same is true of the young adults going to college. And then, how many  adults  , who  now complain (抱怨) about the long drives to work,  eagerly  drove for hours at a time when they first   obtained   their driver’s license (执照)? Before people retire, they usually  plan  to do a lot of  great   things, which they never had  time   to do while working. But  soon   after retirement , the golfing, the fishing, the reading and all of the other pastimes become as boring as the jobs they  left   . And , like the child in January, they go searching for new  toys    .
 41. A. principle      B. habit          C. weaker        D. power
 
 42. A. parties       B. races          C. countries      D. ages
@@ -34,7 +34,7 @@ As a general rule, all forms of activity lead to boredom when they are performed
 
 48. A. silently      B. impatiently       C. gladly    D. worriedly
 
-49. A. promise  B. burden            C. right             D. game
+49. A. promise  B. burden            C. right             D. gam
 
 50. A. courage         B. calmness        C. confusion         D. excitement
 
@@ -42,8 +42,7 @@ As a general rule, all forms of activity lead to boredom when they are performed
 
 52. A. children         B. students         C. adults     D. retirees
 
-53. A. carefully      B. eagerly       C. nervously          D. bravely
-
+53. A. carefully      B. eagerly       C. nervously          D. b
 54. A. required         B. obtained    C. noticed          D. discovered
 
 55. A. need             B. learn            C. start                D. plan
@@ -67,6 +66,53 @@ This student,however,did have to face consequences from Servite as he was remove
 So,next time you're about to post something you think could be received as offensive or inappropriate,think twice,think again.
                                         
 2. List
+
+
+When I was a boy we used to live across the road from a big hill with huge oak trees growing out of it.When winter arrived,thick,heavy snow would fall,and my two brothers would grab their sleds heading over to the hill for a day of fun.I remember watching them with envy because I was still too small to go sledding.Finally,one winter I was considered big enough and joined my brothers as they carried their sleds up the long hill and prepared to ride down it.
+
+The first few trips I rode with one of my brothers and had the time of my life.It was so exhilarating when the wind whipped across my face as I flew down the hillside on the wooden sled.Near the end of the day I was overjoyed too when my oldest brother decided to let me try riding the sled all by myself.I climbed on it full of excitement and lay on my stomach.Then with one big push my brother sent me down the snowy hillside.I was doing pretty well too until I hit an old stump hidden by the snow and went off course,straight towards one of those big oak trees.My heart pounded in my chest and I could hear myself screaming.At the last possible second I rolled off and the sled crashed into the tree.I could hear my brothers running down the hill yelling,“You have to steer（操控）! You have to steer!”
+
+Sadly,that wasn’t the last time I failed to steer when some obstacle knocked me off course in my life.Many times problems,troubles,and my own failures have sent me crashing into the trees of anger,frustration,and despair.I am still learning that life isn’t always safe sledding.I am sti l learning that it is up to me to steer myself back to love,back to kindness,back to goodness,and back to God.
+
+Life is a trip,but no one ever said it was a smooth ride.Steer well then.Steer straight.Steer your soul towards the light and the love we are all meant for.
+
+1. What do we know about the author when he was very young?
+
+A. He lived on a big hill with huge oak trees on it.
+
+B. He was frightened to go sledding with his brothers.
+
+C. He longed to go sledding with his brothers.
+
+D. He carried his brothers’ sleds as they went sledding.
+
+2. Which of the following can replace the underlined word “exhilarating” in Paragraph 2?
+
+A. delightful     B. Terrifying     C. ordinary     D. violent
+
+3. Why did the author fall off his sled?
+
+A. Because his sled crashed in an oak tree.
+
+B. Because he lost control of his sled.
+
+C. Because his brother pushed it so hard.
+
+D. Because the hillside was snowy.
+
+4. What does the author mean to tell us?
+
+A. Losing control of a sled can be dangerous.
+
+B. Courage and determination can change one’s life.
+
+C. Life can be controlled by one himself.
+
+D. Life is a mystery full of coincidences.
+
+ 
+
+
 
 **Bold** and _Italic_ and `Code` text
 
