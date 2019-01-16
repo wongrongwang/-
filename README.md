@@ -126,6 +126,19 @@ F.Before the spread of Gutenberg's idea,literature was primarily handwritten.
 G.It was in Strasbourg that he probably made his first experiments with moveable type.
 
 
+Johannes Gutenberg was chosen to be the most important figure of the past millennium（千年）by the media. You may not be familiar with him.But he has certainly influenced your life in some ways Gutenberg is praised for having invented the printing press and therefore preparing the way for printing books.
+He was born into a wealthy family in the city of Mainz,Germany.In 1428,he moved to Strasbourg and lived there for almost 20 years.It was in Strasbourg that he probably made his first experiments with moveable type.
+Gutenberg used his skills in metalwork for the mass production of books.Before the spread of Gutenberg's idea,literature was primarily handwritten.That means that each copy of the Catholic Bible and all of its 73 books were painstakingly handwritten by penmen.Gutenberg fashioned a font（字体）of over 300 characters,far larger than the fonts of today.To make this possible,he invented the variable-width mold（模具）and perfected the mixture of materials used by type factories up to the present century.
+In 1450,Gutenberg was back in Mainz at work on a printing press.__Between 1450 and 1455,while preparing to produce a large Latin Bible,Gutenberg is thought to have printed a number of smaller books,a calendar,and so on.The Bible of 42 Lines,the oldest surviving printed book in the Western world,was completed by August 15,1456.
+The discovery of the modem printing press changed the way information was delivered.This invention was also responsible for educating the masses worldwide.
+
+Even today in the computer age,we rely heavily on the printed word or text for instruction,information,and for the pleasure of reading literature.
+
+
+
+
+
+
 **Bold** and _Italic_ and `Code` text
 
 [Link](url) and ![Image](src)
