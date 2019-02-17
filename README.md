@@ -136,6 +136,22 @@ Even today in the computer age,we rely heavily on the printed word or text for i
 
 
 
+ 1.    Do you want to worry less? Of course you do, right? That's like me asking if I could send you free bacon. Worry is like black mold — it appears in damp conditions and spreads uncontrollably. And often times we don't realize it's there until it's killing us. We must get rid of worry before it destroys us. But how should we do it ?    Here are some effective ways to deal with it.
+ 2.        Do What You Need to Do.   Do what you should be doing.       You ought not to avoid tough projects or hard conversions until the last moment. If you don't do what you should be doing, you will end up spending the rest of the time worrying about the must-do things. Believe it or not, the anxiety that comes from worrying is much worse than the task we're worried about.
+ 3. Get Intentional.          I think many of us act like we're puppets in a play and we're waiting for something or someone to put us in the right place. You just react to whatever is going on. We need to stop letting life just happen. We need to live on purpose.  
+4.      make plans         You can't have intentionality without making plans. Making plans will enable you to achieve your aims more smoothly. Yet, don't place your plans in stone. You can adjust your plans flexibly. Accept changes . Make new plans and then move forward.
+5.    There are other ways to lessen worry. As long as you are determined to take action, you will live a worry-free life.
+
+
+
+
+
+
+
+
+
+
+
 
 
 
