@@ -146,9 +146,21 @@ Even today in the computer age,we rely heavily on the printed word or text for i
 
 
 
+Online shopping is coming into fashion in most cities, where people are able to make full use of the rapidly-developed Internet technology. Nowadays, can we find a person who has not experienced online shopping? Definitely not.
+
+Online shopping   is welcomed by most people due to various reasons. From the perspective of consumer, it can save some time for people who don't have much spare time. Just click the mouse, they can get whatever they want while staying at home. For the retailers, it can cut some costs for those who don't have much circulating funds. compared with the traditional trade mode, they don't have to spend money in renting a house. However, there are still some disadvantages in online shopping. First, a face-to-face deal makes online shopping less reliable and trustworthy. Second, people will lose the fun of bargaining.
+
+ it is undeniable that shopping on the Internet has become an irresistible trend in modern society. It's of great  urgency that we need to make the laws with the rapid growth of online shopping. Only in this way can we enjoy the pleasure and  convenience  of online shopping without the concern  about  being cheated.
 
 
 
+
+
+Online shopping is coming into fashion in most cities, where people are able to make full use of the rapidly-developed Internet technology. Nowadays, can we find a person who has not experienced online shopping? Definitely not.
+
+Online shopping   is welcomed by most people due to various reasons. From the perspective of consumer, it can save some time for people who don't have much spare time. Just click the mouse, they can get whatever they want while staying at home. For the retailers, it can cut some costs for those who don't have much circulating funds. compared with the traditional trade mode, they don't have to spend money in renting a house. However, there are still some disadvantages in online shopping. First, a face-to-face deal makes online shopping less reliable and trustworthy. Second, people will lose the fun of bargaining.
+
+ it is undeniable that shopping on the Internet has become an irresistible trend in modern society. It's of great  urgency that we need to make the laws with the rapid growth of online shopping. Only in this way can we enjoy the pleasure and  convenience  of online shopping without the concern  about  being cheated.
 
 
 
