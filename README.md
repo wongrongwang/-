@@ -163,7 +163,9 @@ Online shopping   is welcomed by most people due to various reasons. From the 
  it is undeniable that shopping on the Internet has become an irresistible trend in modern society. It's of great  urgency that we need to make the laws with the rapid growth of online shopping. Only in this way can we enjoy the pleasure and  convenience  of online shopping without the concern  about  being cheated.
 
 
+H’ Doubler always smiled when he read or heard reports of the event’s success ,his daughter Sarah Muegge said. “He was very   pleased with the way it developed,” said Ellison. “It’s just  the way H’ Doubler expected it: no strings attached. Just fun and good food ,” said Ellison.
 
+H’ Doubler preferred to keep secret his role in starting the event, but he died recently at the age of 85. Ellison asked H’ Doubler’s daughter if it was OK to tell people that it was H’ Doubler’s   idea and money that started the tradition. And she said yes.
 
 
 
